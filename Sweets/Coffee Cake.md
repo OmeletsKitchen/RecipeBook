@@ -7,7 +7,7 @@ For the streusel topping:
     1 cup (96g) all-purpose flour
     1 teaspoon ground cinnamon
     Pinch of kosher salt
-    1/2 cup (113g) unsalted butter, very soft
+    1/2 cup (113g) unsalted butter, cold
 
 For the cinnamon layer:
 
