@@ -1,11 +1,13 @@
 Ingredients
 
 Crust:
+
     240 g flour
     170g butter, cold
     104 ml icewater
 
 Filling:
+
     1 can raw pumpkin puree (about 2 cups)
     238 g brown sugar
     50g white sugar
@@ -22,14 +24,15 @@ Filling:
 Preheat the oven to 400F while you work.
 
 Crust:
+
     Cut cold butter into small pieces, then blend with the flour in a stand mixer on low speed or with a pastry cutter until the dough becomes shaggy. 
     Add icewater one tablespoon at a time until it becomes just soft enough to roll out. Move the dough onto a well floured surface and beat it into a mound with your 
     rolling pin. Attempt to roll out the crust. If it seems reluctant, chill it in the fridge a bit and allow it to rest, then try again. 
     
-    After rolling it to 1/4in to 1/2in thickness, fold the crust over your rolling pin and carefully lay it overtop or a tart or pie tin. Push the dough into the corners,
-    then roll the pin over the rim to neatly trim the edges (not recommended for a flimsy aluminum tin). Crimp edges to your liking.
+    After rolling it to 1/4in to 1/2in thickness, fold the crust over your rolling pin and carefully lay it overtop or a tart or pie tin. Push the dough into the corners, then roll the pin over the rim to neatly trim the edges (not recommended for a flimsy aluminum tin). Crimp edges to your liking.
     
 Filling:
+
     Beat all ingredients together thoroughly, until there are no lumps. A stand mixer with a whisk attachment or hand beater is perfect for this. 
     You can warm the filling in a large saucepan to reduce baking time, or pour it directly into your unbaked crust.
     
