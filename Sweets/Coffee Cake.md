@@ -18,7 +18,7 @@ For the cinnamon layer:
 For the cake batter:
 
     3 cups (384g) all-purpose flour
-    2 1/4 cups (450g) sugar
+    2 1/4 cups (350g) sugar (Note: the original calls for 450g, which is way too fucking much. 350g is plenty.)
     3/4 teaspoon baking powder
     1/2 teaspoon baking soda
     1/2 teaspoon kosher salt
