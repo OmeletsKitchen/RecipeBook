@@ -1,4 +1,5 @@
 Ingredients
+
     370g flour
     63g sugar
     16g baking powder
@@ -8,6 +9,7 @@ Ingredients
     dried fruit, soaked in warm water until plump
     
 Directions
+
 1. Whisk dry ingredients and cut in butter until crumbly.
 2. Press into mound and cut into 8 triangles.
 3. Make icing with confectionery sugar and a bit of liquid (lemon juice, maple syrup, cream, ect.)
