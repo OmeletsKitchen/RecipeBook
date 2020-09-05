@@ -4,14 +4,14 @@ Ingredients:
     42 grams whole wheat flour
     2¼ tsp instant/ quick yeast (one packet)
     312 grams warm water (120F)
-    42 grams butter, melted and cooled
+    28 grams butter, melted and cooled
     21 grams honey
     ¾ tsp salt
     
     1 large egg, lightly beaten with 1 Tbs water and a pinch of salt
     
 1. Whisk flours and yeast together in bowl of stand mixer. 
-2. Whisk 296g of the water, 28 g of the butter, and the honey in a measuring cup until honey dissolves.
+2. Whisk 296g of the water, butter, and the honey in a measuring cup until honey dissolves.
 3. Using a paddle attachment on low speed, slowly add water mixture to flour mixture and mix until batter comes together, 1 minute. 
 Increase speed to medium and mix 4 minutes, scraping down bowl and paddle as needed. Cover bowl with plastic wrap and allow to rise until doubled in size, about 20 mins.
 4. Adjust oven rack to lower-middle and heat oven to 375F. Grease or cover with parchment paper a bread tin.
