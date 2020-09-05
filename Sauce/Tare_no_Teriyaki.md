@@ -1,7 +1,7 @@
 Makes about 1.5 cups.
 
     1/2 cup soy sauce
-    1/2 cup mirin (sweet rice wine)
+    1/2 cup mirin, みりん (sweet rice wine)
     1/2 cup sake (Japanese rice wine)
     1/2 cup white sugar
     1/4 roughly chopped yellow onion
