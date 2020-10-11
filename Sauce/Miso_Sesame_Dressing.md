@@ -1,4 +1,4 @@
-    1.5 Tbsp miso paste
+    1.5 Tbsp white miso paste
     30 grams rice vinegar
     26 grams honey
     6 grams minced fresh ginger root
