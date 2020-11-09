@@ -10,6 +10,7 @@ Ingredients:
     565g milk
     60g oil
     3g vanilla
+    1 large egg
     
     
 Instructions
