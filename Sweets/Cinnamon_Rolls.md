@@ -19,8 +19,8 @@ Filling:
 
 Frosting:
 
-    60 grams cream cheese room temperature
-    42 grams butter
+    60 grams cream cheese, room temperature
+    42 grams butter, room temperature
     90 grams powdered sugar
     
 1. In a large mixing bowl, dissolve the yeast into the warm milk. Add the sugar, butter, eggs, vanilla and salt. Stir until mixture is combined.
