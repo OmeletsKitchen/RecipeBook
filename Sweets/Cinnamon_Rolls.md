@@ -15,7 +15,7 @@ Filling:
 
     95 grams brown sugar
     12 grams cinnamon
-    60 grams softened butter
+    60 grams butter, melted and cooled
 
 Frosting:
 
@@ -33,11 +33,11 @@ Frosting:
 
 5. Preheat the oven to 400F.
 
-6. Re-flour a work surface and roll the dough into a large rectangle, approximately 16 x 20. Spread the butter over the dough surface.
+6. Re-flour a work surface and roll the dough into a large rectangle, approximately 16 x 20. Spread the melted butter over the dough surface.
 
 7. Combine the brown sugar and the cinnamon in a small bowl, then sprinkle over the butter. Roll up the dough from the long side. Cut the dough into 2" lengths.
 
-8. Line a jumbo muffin pan with liners or spray with nonstick spray. Press the dough into the wells of the pan. Conversely, you can spray a 13 x 9 baking pan with cooking spray and place the dough rounds in the pan. Place in preheated oven for 15-20 minutes, until the rolls are puffed up and slightly golden.
+8. Line a 13 x 9 baking pan with parchment paper and place the dough rounds in the pan. Place in preheated oven for 15-20 minutes, until the rolls are puffed up and slightly golden.
     
 9. While the rolls are in the oven, beat the cream cheese and butter together using a hand mixer. Mix in the powdered sugar, and beat until smooth. Ice the rolls while they are still warm.
 
