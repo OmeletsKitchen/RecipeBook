@@ -2,13 +2,13 @@ From: https://carlsbadcravings.com/35-minute-wait-rise-stromboli-aka-make-rolled
 
 Stromboli Dough
 
-    1 ¾ - 2 1/4 cups of flour
-    1 envelope Fleischmann’s® Pizza Yeast
-    1 1/2 teaspoons sugar
-    3/4 teaspoon salt
-    2/3 cup of very warm water (120° to 130° F)
-    3 tablespoons olive oil
-    1 egg, beaten (egg wash)
+    210–270 grams flour
+    1 envelope (2 1/4 tsp) Fleischmann's® Pizza Yeast
+    1½ tsp sugar
+    ¾ tsp salt
+    159 ml very warm water
+    3 tbsp olive oil
+    1 egg beaten
     
 Instructions
 
