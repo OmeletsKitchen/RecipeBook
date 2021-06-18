@@ -1,7 +1,7 @@
 From: https://littlespoonfarm.com/sourdough-chocolate-chip-cookies-recipe/
 
 # Ingredients
-## Dry Ingredients
+### Dry Ingredients
 
     ¾ cup + 1 teaspoon (95 g) all-purpose flour
     1 cup + 1 teaspoon (125 g) bread flour (all-purpose can be substituted, see notes)
@@ -9,13 +9,13 @@ From: https://littlespoonfarm.com/sourdough-chocolate-chip-cookies-recipe/
     ¼ teaspoon baking soda
     ½ teaspoon baking powder
 
-## Wet Ingredients 1
+### Wet Ingredients 1
 
     1 large (1 ) egg
     ½ cup (125 g) sourdough starter discard
     1 teaspoon (5 g) vanilla extract
 
-## Wet Ingredients 2
+### Wet Ingredients 2
 
     8 tablespoons (113 g) unsalted butter (cold, cubed)
     ½ cup (100 g) light brown sugar
@@ -24,15 +24,15 @@ From: https://littlespoonfarm.com/sourdough-chocolate-chip-cookies-recipe/
     
 # Instructions
 
-## Mix dry ingredients
+### Mix dry ingredients
 
 * Use a whisk or a fork to mix the bread flour, all-purpose flour, baking soda, baking powder and salt in a small bowl. Set aside.
 
-## Mix wet ingredients 1
+### Mix wet ingredients 1
 
 * In a separate small bowl, use a whisk or a fork to beat the egg, vanilla extract and sourdough starter until smooth. Set aside.
 
-## Mix wet ingredients 2
+### Mix wet ingredients 2
 
 * Place the cold, cubed butter, light brown sugar and granulated sugar into the bowl of a stand mixer with the paddle attachment. Beat on low-speed until the mixture forms small crumbles, 45-60 seconds. Add the chocolate chips and mix on low-speed 30-45 seconds. Scrape down the sides of the bowl.
 
@@ -42,7 +42,7 @@ From: https://littlespoonfarm.com/sourdough-chocolate-chip-cookies-recipe/
 
 * Bake in a preheated, 375°F (190°C) oven for 15-17 minutes, or until the edges are golden brown and the center still appears slightly under-baked. Remove and allow the cookies to rest on the baking sheet for 5 minutes before transferring them to a cooling rack.
 
-## Notes
+### Notes
 
 * Store baked cookies at room temperature in an air-tight container for up to 7 days. Place a small slice of white bread inside the container to help keep cookies fresh.
 
