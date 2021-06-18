@@ -1,7 +1,8 @@
 From: https://www.thepioneerwoman.com/food-cooking/recipes/a10209/rhubarb-cobbler/
 
 ## Ingredients
-
+    
+    (Filling)
     4 c. Chopped Rhubarb
     1 1/2 c. Sugar
     1/4 tsp. Salt
@@ -9,6 +10,8 @@ From: https://www.thepioneerwoman.com/food-cooking/recipes/a10209/rhubarb-cobble
     1/2 tsp. Almond Extract (optional)
     2 c. All-purpose Flour
     2 tbsp. Sugar
+    
+    (Crumble Topping)
     1/4 tsp. Salt
     1 tbsp. Baking Powder
     1/4 c. Vegetable Shortening Or Lard
