@@ -3,31 +3,18 @@ From: https://www.inspiredtaste.net/40400/lentil-soup/
 ## Ingredients
 
     2 tablespoons olive oil
-
     2 cups finely chopped onion (1 medium onion)
-
     1 1/2 cups chopped carrot (2 large carrots)
-
     2 teaspoons minced garlic (3 cloves)
-
     1 teaspoon ground cumin
-
     1/2 teaspoon ground coriander
-
     1/2 teaspoon fresh ground black pepper
-
     1/2 teaspoon ground turmeric
-
     2 cups (12 ounces) lentils, picked and rinsed
-
     8 cups chicken or vegetable broth
-
     2 heaping cups shredded kale or spinach
-
     1 to 2 lemons
-
     1/4 cup chopped fresh herbs like parsley or dill, optional
-
     Fine sea salt, to taste
     
     ## Method
