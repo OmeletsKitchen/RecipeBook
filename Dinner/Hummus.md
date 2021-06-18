@@ -12,6 +12,7 @@ From: https://www.thewholesomedish.com/simple-hummus-without-tahini/#recipe
 
 ## Instructions
 
-    * Add the garbanzo beans, 2 tablespoons of water, the olive oil, lemon juice, garlic, cumin, and 1/4 teaspoon of salt to a food processor. 
-    * Process until smooth and creamy. If needed, add additional water to thin out the hummus and 1/4 teaspoon of salt to your taste preference.
+* Add the garbanzo beans, 2 tablespoons of water, the olive oil, lemon juice, garlic, cumin, and 1/4 teaspoon of salt to a food processor. 
+
+* Process until smooth and creamy. If needed, add additional water to thin out the hummus and 1/4 teaspoon of salt to your taste preference.
     Store covered in the refrigerator.
