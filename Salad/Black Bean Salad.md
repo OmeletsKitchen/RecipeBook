@@ -18,7 +18,7 @@ From: https://cookieandkate.com/black-bean-salad-recipe/
 * ½ teaspoon salt, to taste
 * Optional garnishes: sliced avocado, crumbled feta, lime wedges
 
-##Preparation
+## Preparation
 
 * In a large serving bowl, combine all of the ingredients and toss to combine. Taste, and adjust as necessary until the flavors really pop—I usually add another teaspoon or two of vinegar (you can use lime juice instead, for more mild flavor) and another ¼ teaspoon salt.
 
