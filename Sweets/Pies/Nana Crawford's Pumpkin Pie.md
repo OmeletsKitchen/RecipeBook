@@ -1,4 +1,4 @@
-Ingredients
+## Ingredients
 
 Crust:
 
@@ -19,7 +19,7 @@ Filling:
     3 eggs
     1 tsp vanilla
     
-Instructions
+## Instructions
     
 Preheat the oven to 400F while you work.
 
