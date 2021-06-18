@@ -1,44 +1,49 @@
-From: https://www.gogogogourmet.com/cinnamon-rolls/
+From: https://www.tastesoflizzyt.com/homemade-cinnamon-rolls/#recipe
 
 Dough:
 
-    2¼ tsp 1 package yeast
-    237 ml warm milk
-    100 grams sugar
-    56 grams softened butter
-    2 eggs
-    2 tsp vanilla
-    ½ tsp salt
-    510 grams flour
+    244 g warm milk (about 115 degrees F)
+    2.5 teaspoons instant dry yeast
+    2 large eggs at room temperature
+    75.67 g salted butter** (Melted, but make sure it isn't super hot. Just barely melted, or even softened, is fine.)
+    1 teaspoon salt
+    100 g granulated sugar
+    562.5 g all-purpose flour (divided)
 
 Filling:
 
-    95 grams brown sugar
-    12 grams cinnamon
-    60 grams butter, melted and cooled
+    113.5 g salted butter (almost melted)
+    220 g packed brown sugar
+    2 tablespoons cinnamon
 
 Frosting:
 
-    60 grams cream cheese, room temperature
-    42 grams butter, room temperature
-    90 grams powdered sugar
+    170.1 g cream cheese (softened)
+    75.67 g salted butter (softened)
+    240 g powdered sugar
+    0.5 tablespoon maple extract (or vanilla)
     
-1. In a large mixing bowl, dissolve the yeast into the warm milk. Add the sugar, butter, eggs, vanilla and salt. Stir until mixture is combined.
+1. Pour the warm milk in the bowl of a stand mixer and sprinkle the yeast overtop.
 
-2. Add the flour to the bowl and stir in until combined.
-   
-3. Dust a work suface liberally with flour and turn out the dough (it will be very sticky). Sprinkle the dough with more flour and knead the dough until it is able to be formed into a ball.
-   
-4. Spray a bowl with cooking spray and add the dough. Cover and allow to rise for 1 1/2-2 hours, or until the dough has doubled in size.
+2. Add the eggs, butter, salt and sugar.
+3. Add in 4 cups (save the other 1/2 cup and add only if you need it) of flour and mix using the beater blade just until the ingredients are barely combined. Allow the mixture to rest for 5 minutes so the flour has time to soak up the liquids.
+4. Scrape the dough off the beater blade and remove it. Attach the dough hook.
+5. Beat the dough on medium speed, adding in up to 1/2 cup more flour if needed to form a dough. Knead for 5-7 minutes or until the dough is elastic and smooth. 
+6. The dough should be tacky and will still be sticking to the sides of the bowl. That's ok! Don't be tempted to add more flour at this point. We generally add about 4 1/2 cups, but start with 4 cups.
+7.  Spray a large bowl with cooking spray.
+8.   Use a rubber spatula to remove the dough from the mixer bowl and place it in the greased large bowl. 
+9.   Cover the bowl with a towel or wax paper.
+10.   Set the bowl in a warm place and allow the dough to rise until double. I like to turn on the oven to the lowest setting for 1-2 minutes. Then turn off the oven and place the dough to rise in there. It normally takes about 30 minutes for the dough to rise. Do not allow the dough to rise too much or your cinnamon rolls will be airy.
+11.   While the dough is rising, prepare the cinnamon filling. In a medium bowl, combine the soft butter, brown sugar and cinnamon, mixing until well combined. Set aside.
+12.   Sprinkle a pastry mat generously with flour. Turn out the dough onto the pastry mat and sprinkle the top of the dough with additional flour. 
+13.   Flour a rolling pin and roll the dough to about a 24×15" rectangle. (the size of the rectangle can vary…it does not have to be exact!)
+14.   Use a rubber spatula to smooth the cinnamon filling over the whole dough rectangle.
+15.   Starting on the long end, roll the dough up tightly jelly roll style. 
+16.   Cut into 12 slices and place in a greased 9×13 baking pan.****
+17.   Cover the pan and allow the rolls to rise for 20 minutes or until nearly double.
+18.   Preheat the oven to 375 degrees.
+19.   Bake at 375 degrees for 20-22 minutes, until the rolls are lightly golden brown and the center rolls are cooked through. Note…the time will vary based on how big the rolls are, what type of pan, how close the rolls are packed, etc. They could take up to 25-27 minutes. Check the rolls at 20 minutes. If they are getting too browned, cover loosely with foil for the remaining baking time.
+20.   In the meantime, in a large bowl, combine the softened cream cheese and butter using a hand mixer. Blend well.
+21.   Add in your favorite extract and the powdered sugar. Beat until combined.
+22.   Spread the frosting over the cooled rolls.
 
-5. Preheat the oven to 400F.
-
-6. Re-flour a work surface and roll the dough into a large rectangle, approximately 16 x 20. Spread the melted butter over the dough surface.
-
-7. Combine the brown sugar and the cinnamon in a small bowl, then sprinkle over the butter. Roll up the dough from the long side. Cut the dough into 2" lengths.
-
-8. Line a 13 x 9 baking pan with parchment paper and place the dough rounds in the pan. Place in preheated oven for 15-20 minutes, until the rolls are puffed up and slightly golden.
-    
-9. While the rolls are in the oven, beat the cream cheese and butter together using a hand mixer. Mix in the powdered sugar, and beat until smooth. Ice the rolls while they are still warm.
-
-*Note: Baking time has been increased and frosting/ filling amounts have been halved based on my experience with the original recipe.
