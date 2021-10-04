@@ -3,20 +3,20 @@ From: https://www.thepioneerwoman.com/food-cooking/recipes/a10209/rhubarb-cobble
 ## Ingredients
     
     (Filling)
-    4 c. Chopped Rhubarb
-    1 1/2 c. Sugar
+    4 c. Chopped Rhubarb (480g)
+    1 1/2 c. Sugar (300g)
     1/4 tsp. Salt
     2 tbsp. Lemon Juice
     1/2 tsp. Almond Extract (optional)
-    2 c. All-purpose Flour
-    2 tbsp. Sugar
     
     (Crumble Topping)
+    2 c. All-purpose Flour (240g)
+    2 tbsp. Sugar
     1/4 tsp. Salt
     1 tbsp. Baking Powder
-    1/4 c. Vegetable Shortening Or Lard
-    1/4 c. Butter
-    1/2 c. Whole Milk
+    1/4 c. Vegetable Shortening Or Lard (47g)
+    1/4 c. Butter (56g)
+    1/2 c. Whole Milk (118g)
     1 whole Egg
 
 * Preheat oven to 400 degrees.
