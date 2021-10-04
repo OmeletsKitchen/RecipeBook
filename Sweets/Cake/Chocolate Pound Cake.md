@@ -8,7 +8,7 @@ From: https://www.justsotasty.com/chocolate-pound-cake/#recipe
     ½ teaspoon baking soda
     ½ teaspoon salt
     1 cup sour cream (240 ml) (Plain yogurt works great too!)
-    ⅔ cup strong coffee (160 ml)
+    ⅔ cup strong, very hot coffee (160 ml)
     
 1. Preheat the oven to 325 F (160 C).
 2. Grease a 12-cup, non-stick bundt pan and dust with cocoa powder. Be sure that all ridges and creases are well covered.
