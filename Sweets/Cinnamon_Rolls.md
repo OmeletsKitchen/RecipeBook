@@ -8,7 +8,7 @@ Dough:
     75.67 g salted butter** (Melted, but make sure it isn't super hot. Just barely melted, or even softened, is fine.)
     1 teaspoon salt
     100 g granulated sugar
-    562.5 g all-purpose flour (divided)
+    480 g all-purpose flour 
 
 Filling:
 
@@ -16,12 +16,14 @@ Filling:
     220 g packed brown sugar
     2 tablespoons cinnamon
 
-Frosting:
+Frosting: 
 
     170.1 g cream cheese (softened)
     75.67 g salted butter (softened)
     240 g powdered sugar
     0.5 tablespoon maple extract (or vanilla)
+
+*Note: This makes quite a bit of frosting. I only use about half.
 
 ### Make the Dough
 1. Pour the warm milk in the bowl of a stand mixer and sprinkle the yeast overtop.
@@ -36,10 +38,10 @@ Frosting:
 11.   Set the bowl in a warm place and allow the dough to rise until double. I like to turn on the oven to the lowest setting for 1-2 minutes. Then turn off the oven and place the dough to rise in there. It normally takes about 30 minutes for the dough to rise. Do not allow the dough to rise too much or your cinnamon rolls will be airy.
 
 ### Prepare the Filling
-13.   While the dough is rising, prepare the cinnamon filling. In a medium bowl, combine the soft butter, brown sugar and cinnamon, mixing until well combined. Set aside.
-14.   Sprinkle a pastry mat generously with flour. Turn out the dough onto the pastry mat and sprinkle the top of the dough with additional flour. 
+13.   While the dough is rising, prepare the cinnamon filling. In a medium bowl, combine the brown sugar and cinnamon, mixing until well combined. Set aside.
+14.   Sprinkle a pastry mat generously with flour. Turn out the dough onto a work surface and sprinkle the top of the dough with additional flour. 
 15.   Flour a rolling pin and roll the dough to about a 24×15" rectangle. (the size of the rectangle can vary…it does not have to be exact!)
-16.   Use a rubber spatula to smooth the cinnamon filling over the whole dough rectangle.
+16.   Brush on the softened butter and sprinkle with cinnamon mixture.
 17.   Starting on the long end, roll the dough up tightly jelly roll style. 
 18.   Cut into 12 slices and place in a greased 9×13 baking pan.****
 19.   Cover the pan and allow the rolls to rise for 20 minutes or until nearly double.
