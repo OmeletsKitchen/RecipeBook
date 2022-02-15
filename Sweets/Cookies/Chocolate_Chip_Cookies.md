@@ -1,3 +1,5 @@
+From: https://www.food.com/recipe/soft-and-chewy-chocolate-chip-cookies-48356
+
     250g sugar
     269g brown sugar
     284g slightly softened butter
