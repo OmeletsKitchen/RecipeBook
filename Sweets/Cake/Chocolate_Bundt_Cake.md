@@ -14,6 +14,11 @@ Ingredients
         120 ml sour cream*
         80 ml boiling water (or hot coffee)
         
+For the buttermilk (because who has buttermilk handy, honestly)
+
+    Place 1 tsp vinegar in a 1/2c measuring cup, then fill to top with milk.
+    Let sit 5 minutes until it curdles slightly, then proceed with recipe.
+    
 1. Preheat the oven to 350F (180C) degrees and position a wire rack on the bottom ⅓ of the oven.
 2. Brush a 12-cup capacity bundt pan with pan release* or grease and dust with cocoa powder. Be sure to get inside all the creases of the pan.
 3. In a large bowl whisk together the flour, cocoa, baking soda, salt, and sugar.
