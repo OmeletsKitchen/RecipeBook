@@ -10,7 +10,7 @@ Ingredients
         1/2 tsp salt
         1 (28-oz) can diced tomatoes, drained
         
-1. Place all ingredients except tomatoes in food processor; pulse until coarsely chipped.
+1. Place all ingredients except tomatoes in food processor; pulse until coarsely chopped.
 2. Add tomatoes, pulsing a few more times until fully combined.
 3. Transfer to fine mesh strainer and let drain; transfer to serving bowl.
 4. Add hot sauce to taste.
