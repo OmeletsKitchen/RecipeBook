@@ -1,4 +1,4 @@
-From: Plant-Forward Cooking with Vanessa Young
+From: Plant-Forward Cooking with Vanessa Young www.thirstyradish.com
 
 Ingredients:
 
