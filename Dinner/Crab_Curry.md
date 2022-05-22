@@ -29,7 +29,7 @@ Ingredients:
 3. Add the spice/garlic paste and red curry paste, stirring to evenly coat the onion. Add tomato and cook until softened. You may need more oil to help it along.
 4. Shake coconut cream vigorously before opening, then add to the mix, stirring to blend the sauce. Add your bay leaves and crab.
 5. Bring to a low simmer, covered, for at least 10 mins.
-6. Salt and pepper to taste and top with cilantro leaves. Serve hot with white rice or bread.
+6. Discard bay leaves. Salt and pepper to taste and top with cilantro leaves. Serve hot with white rice or bread.
 
     
     
