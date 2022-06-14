@@ -45,3 +45,5 @@ From: https://sallysbakingaddiction.com/my-favorite-carrot-cake-recipe/
 * Add the confectioners’ sugar, cream/milk, vanilla extract, and a pinch of salt. Beat on low speed for 30 seconds, then increase to high speed and beat for 3 minutes until completely combined and creamy. 
 
 * Add more confectioners’ sugar if frosting is too thin, more milk if frosting is too thick, or an extra pinch of salt if frosting is too sweet. Frosting should be soft, but not runny.
+
+*Note: Thius can be made in a bundt pan! Simply bake for 50 mins.
