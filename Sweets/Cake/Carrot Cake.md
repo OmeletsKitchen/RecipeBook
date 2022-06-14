@@ -46,4 +46,4 @@ From: https://sallysbakingaddiction.com/my-favorite-carrot-cake-recipe/
 
 * Add more confectioners’ sugar if frosting is too thin, more milk if frosting is too thick, or an extra pinch of salt if frosting is too sweet. Frosting should be soft, but not runny.
 
-*Note: Thius can be made in a bundt pan! Simply bake for 50 mins.
+*Note: This can be made in a bundt pan! Simply bake for 50 mins.
