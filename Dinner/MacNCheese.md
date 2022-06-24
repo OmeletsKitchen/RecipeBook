@@ -8,17 +8,17 @@ Ingredients
     1 tsp onion powder
     651 ml milk
     119 grams light cream
-    ½ tsp dry mustard powder
     ½ tsp seasoned salt or to taste
     black pepper to taste
-    3 cups sharp cheddar
-    ½ cup gruyere cheese swiss cheese or mozzarella
+    3 cups block cheese of your choice, shredded
+    ½ cup mozzarella, shredded
     ¾ cup fresh parmesan cheese divided
     
 Topping
     
     1 cup panko bread crumbs
     2 Tbsp butter, melted
+    
 1. Preheat oven to 400°F.
 2. Combine Panko bread crumbs, melted butter, and ¼ cup parmesan cheese.  Set aside.
 3. Cook macaroni al dente according to package directions. Drain and run under cold water and set aside.
