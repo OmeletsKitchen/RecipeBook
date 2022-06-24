@@ -21,9 +21,9 @@ Topping
     
 1. Preheat oven to 400°F.
 2. Combine Panko bread crumbs, melted butter, and ¼ cup parmesan cheese.  Set aside.
-3. Cook macaroni al dente according to package directions. Drain and run under cold water and set aside.
+3. Cook macaroni al dente (firm) according to package directions. Drain and run under cold water and set aside.
 4. Melt butter in a saucepan over medium heat. Stir in flour and onion powder and cook 2 minutes.
 5. Whisk in milk, cream and seasonings over medium heat. Continue to stir until mixture thickens. Let boil 1 minute while stirring.
-6. Remove from heat and add cheddar cheese, gruyere cheese, and remaining ½ cup parmesan cheese. Whisk until melted.
+6. Remove from heat and add mozzarella, your 2nd cheese, and remaining ½ cup parmesan cheese. Whisk until melted.
 7. Stir in macaroni and pour into a 9x13 pan.
 8. Top with crumb mixture and bake 20-25 minutes or until bubbly and topping is browned. Do not overcook.
