@@ -12,12 +12,13 @@ Ingredients
     black pepper to taste
     3 cups block cheese of your choice, shredded
     ½ cup mozzarella, shredded
-    ¾ cup fresh parmesan cheese divided
+    ½ cup parmesan cheese
     
 Topping
     
     1 cup panko bread crumbs
     2 Tbsp butter, melted
+    ¼ cup parmesan cheese
     
 1. Preheat oven to 400°F.
 2. In a bowl, combine Panko bread crumbs, melted butter, and ¼ cup parmesan cheese.  Set aside.
