@@ -20,7 +20,7 @@ Topping
     2 Tbsp butter, melted
     
 1. Preheat oven to 400°F.
-2. Combine Panko bread crumbs, melted butter, and ¼ cup parmesan cheese.  Set aside.
+2. In a bowl, combine Panko bread crumbs, melted butter, and ¼ cup parmesan cheese.  Set aside.
 3. Cook macaroni al dente (firm) according to package directions. Drain and run under cold water and set aside.
 4. Melt butter in a saucepan over medium heat. Stir in flour and onion powder and cook 2 minutes.
 5. Whisk in milk, cream and seasonings over medium heat. Continue to stir until mixture thickens. Let boil 1 minute while stirring.
