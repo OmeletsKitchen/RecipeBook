@@ -1,6 +1,7 @@
 From: One Pan & Done by Molly Gilbert
 
 Ingredients:
+
         6 Tbsp unsalted butter
         1 large yellow onion, roughly chopped
         Kosher salt and black pepper
