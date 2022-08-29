@@ -11,7 +11,7 @@ Ingredients:
     1 tsp chili powder
     1 tsp ground cumin
     1/2 tsp cayenne pepper
-    1 1/2 cups tomato sauce**** (or one 14 oz can would work)
+    1 1/2 cups tomato sauce* (or one 14 oz can would work)
     1 cup cream
     salt & pepper
     
@@ -31,5 +31,5 @@ Instructions
     
 6. Stir in the remaining 2 Tbsp of butter, and season with salt and pepper, to taste.
 
-
+*Tomato sauce and tomato paste are not the same beast. I am able to find 5oz cans of tomato paste, of which I use two and add 4oz of water. Make sure tomato paste or sauce is unseasoned, as many come with "italian seasoning" included.
 
