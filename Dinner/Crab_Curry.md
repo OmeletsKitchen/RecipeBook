@@ -20,13 +20,14 @@ Ingredients:
     1 can coconut milk or cream
     1 large onion, diced
     1 large or 2 small tomatoes, diced
+    1 zucchini, sliced, 2 fistfuls of spinach, or 1 cup peas (fresh or frozen) (optional)
     1 Tbsp oil
     1/2 kg imitation or real (peeled) crab, broken into bite sized pieces
     fresh cilantro leaves, for serving
     
 1. Grind all spices, ginger, and garlic cloves in a mortar and pestle to make a fine paste. Set aside.
 2. Heat oil in a pan over medium high heat. Once the oil is hot, add your onion. A pinch of salt and sugar helps them brown nicely. Stir and cook until transluscent.
-3. Add the spice/garlic paste and red curry paste, stirring to evenly coat the onion. Add tomato and cook until softened. You may need more oil to help it along.
+3. Add the spice/garlic paste and red curry paste, stirring to evenly coat the onion. Add tomato and cook until softened. You may need more oil to help it along. Add veggies, if using.
 4. Shake coconut cream vigorously before opening, then add to the mix, stirring to blend the sauce. Add your bay leaves and crab.
 5. Bring to a low simmer, covered, for at least 10 mins.
 6. Discard bay leaves. Salt and pepper to taste and top with cilantro leaves. Serve hot with white rice or bread.
