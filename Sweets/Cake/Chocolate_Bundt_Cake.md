@@ -3,15 +3,15 @@ From: https://www.justsotasty.com/chocolate-bundt-cake/
 Ingredients
 
         218.75 g all-purpose flour
-        90 g cocoa powder*
+        90 g cocoa powder
         2 teaspoons baking soda
         ½ teaspoon salt
-        400 g caster sugar
-        120 ml oil vegetable or canola
-        2 large eggs*
+        400 g caster sugar**
+        120 ml vegetable or canola oil
+        2 large eggs, preferably room temp
         1 teaspoon vanilla extract
-        120 ml buttermilk*
-        120 ml sour cream*
+        120 ml buttermilk
+        120 ml sour cream (or plain yogurt)
         80 ml boiling water (or hot coffee)
         
 For the buttermilk (because who has buttermilk handy, honestly)
@@ -29,3 +29,5 @@ For the buttermilk (because who has buttermilk handy, honestly)
 8. Cool in the pan for 20 minutes, then carefully invert the pan onto a wire rack to slide the bundt cake out. *Do not try to invert the pan immediately, or wait until the cake is fully cooled to invert.
 
 *Note: You can make frosting to go with this cake, but it is so decadent on its own I highly recommend simply dusting with powdered sugar.
+
+**Caster sugar is slightly granier than icing or confectioner's sugar. You can get an acceptable substitute by giving the same amount of granulated sugar a few pulses in your food processor. Presto, caster sugar!
