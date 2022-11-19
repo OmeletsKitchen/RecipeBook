@@ -3,12 +3,12 @@ Modified from: https://www.yummly.com/recipe/Pumpkin-Apple-Muffins-992762?prm-v1
     125 grams all-purpose flour
     90 grams whole wheat flour
     125 grams granulated sugar
-    125 grams brown sugar
     1 1/2 tsp. pumpkin pie spice
     1/2 tsp. baking soda
     1/2 tsp. salt
     1/4 tsp. baking powder
     1 cup canned pumpkin puree
+    125 grams brown sugar
     1 large OR 2 medium apples (cored and shredded, about 1 1/2 cup)
     75 grams vegetable oil
     1 egg
