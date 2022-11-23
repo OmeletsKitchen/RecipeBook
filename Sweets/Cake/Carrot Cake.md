@@ -47,3 +47,4 @@ From: https://sallysbakingaddiction.com/my-favorite-carrot-cake-recipe/
 * Add more confectioners’ sugar if frosting is too thin, more milk if frosting is too thick, or an extra pinch of salt if frosting is too sweet. Frosting should be soft, but not runny.
 
 *Note: This can be made in a bundt pan! Simply bake for 50 mins.
+**Super Note: These can be made as cupcakes! Using the same recipe and oven temp, fill a muffin cup to the top and bake 20 mins without nuts, or 25 with, or until a knife inserted in the center comes out clean.
