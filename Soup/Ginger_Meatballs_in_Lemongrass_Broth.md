@@ -30,4 +30,4 @@ For the meatballs:
  4. To meatball pot, combine lemongrass, broth, coriander seeds, and cinnamon. Bring to a boil, then reduce to a simmer until meatballs are thoroughly cooked, 10-12 mins.
  5. Meanwhile, bring a kettle of water to a boil. Place noodles in a medium heatproof bowl. Cover noodles with boiling water and set aside until softened, 10-15 mins. Stir ocassionally to ensure noodles remain submerged.
  6. To pot with broth, add a splash of soy and fish sauce, adjusting to taste.
- 7. Divide cooked noodles across 4 bowls and place 5 meatballs in each bowl. Ladle broth over meatballs. Roughly tear mint and cilantro and distribute across bowls. Serve chili oil alongside for guests to add as desired. 
+ 7. Divide drained, cooked noodles across 4 bowls and place 5 meatballs in each bowl. Ladle broth over meatballs. Roughly tear mint and cilantro and distribute across bowls. Serve chili oil alongside for guests to add as desired. 
