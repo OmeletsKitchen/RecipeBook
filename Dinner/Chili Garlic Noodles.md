@@ -1,12 +1,12 @@
-1 c (26g) Korean Chiles
-4 Green onions
-15 cloves garlic
-3 inch knob ginger, peeled
-1 c (240ml) water
-1 c (240ml) vinegar
-1 c (240ml) fish sauce
-1/2 c vegetable oil
-1/2 c white sugar
+    1 c (26g) Korean Chiles
+    4 Green onions
+    15 cloves garlic
+    3 inch knob ginger, peeled
+    1 c (240ml) water
+    1 c (240ml) vinegar
+    1 c (240ml) fish sauce
+    1/2 c vegetable oil
+    1/2 c white sugar
 
 1. In a medium sized sauce pot, combine all of ingredients, except oil, and bring it to a boil
 2. Reduce to a simmer, and place a cartouche, or lid over the pot. Cook for 10 minutes or until everything is soft.
