@@ -1,3 +1,5 @@
+From: https://www.joshuaweissman.com/post/chili-garlic-noodles
+
     1 c (26g) Korean Chiles
     4 Green onions
     15 cloves garlic
