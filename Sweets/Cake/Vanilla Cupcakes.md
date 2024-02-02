@@ -3,22 +3,22 @@ From: https://www.littlesweetbaker.com/moist-vanilla-cupcakes/#tasty-recipes-941
 
 Cupcake ingredients
 
-    1 & ⅓ (165g) cup all-purpose flour
+    165g cup all-purpose flour
     1 & ½ tsp (6g) baking powder
-    ¼ tsp (1g) salt
-    ½ cup (114g) unsalted butter, melted and cooled
-    1 cup (200g) granulated sugar
+    ¼ tsp salt
+    114g unsalted butter, melted and cooled
+    200g granulated sugar
     1 large egg
-    ¼ cup (60g) Greek yogurt (plain or vanilla)
-    ¾ cup (188ml) cold milk (buttermilk is best, but any kind works)
-    2 tsp (10ml) vanilla extract
+    60g Greek yogurt (plain or vanilla)
+    188ml cold milk (buttermilk is best, but any kind works)
+    2 tsp vanilla extract
 
 Buttercream ingredients
 
-    ¾ cup (170g) unsalted butter, room temperature
-    1/4 tsp (1g) salt
+    170g unsalted butter, room temperature
+    1/4 tsp salt
     seeds of 1 vanilla bean (or 1 tsp vanilla extract)
-    3 cups (375g) powdered sugar
+    375g powdered sugar
     2–3 tbsp (30-45ml) cream or milk
 
 Instructions:
