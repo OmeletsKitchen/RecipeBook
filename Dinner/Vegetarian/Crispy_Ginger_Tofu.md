@@ -3,7 +3,7 @@ Modified from: https://thetoastedpinenut.com/ginger-soy-air-fryer-tofu/
 Tofu:
 
     1 large pack "Traditional" or firm tofu
-    3 Tbs arrowroot flour
+    3 Tbs arrowroot flour or cornstarch
     2 tsp garlic powder
     1 tsp red pepper flakes
     1 tsp ground cumin
