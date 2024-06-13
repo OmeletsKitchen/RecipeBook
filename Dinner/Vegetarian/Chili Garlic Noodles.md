@@ -1,6 +1,6 @@
 From: https://www.joshuaweissman.com/post/chili-garlic-noodles
 
-Chili Sauce #1
+**Chili Sauce #1**
 
         4 cloves garlic
         2 green onion, finely chopped
@@ -19,7 +19,7 @@ Chili Sauce #1
 3. Once the oil is hot, around 300-350 Fahrenheit. Pour your hot oil into that bowl and mix.
 4. Allow to sit for 5 minutes before tossing noodles.
 
-Chili Sauce #3
+**Chili Sauce #3**
 
     1 c (26g) Korean Chiles
     4 Green onions
