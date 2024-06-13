@@ -1,4 +1,4 @@
-From: Oven to Table
+From: Oven to Table by Jan Scott
 
 Filling Ingredients:
 
