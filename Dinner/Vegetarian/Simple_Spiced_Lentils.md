@@ -1,5 +1,7 @@
 From: https://iheartvegetables.com/simple-spiced-lentils/
 
+Ingredients:
+
     1 cup dried brown lentils
     2 1/4 cups vegetable broth, divided
     2 cups water
