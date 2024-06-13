@@ -2,7 +2,7 @@ From: https://thesaltymarshmallow.com/instant-pot-mac-and-cheese/
 
 Ingredients:
 
-    454 grams uncooked Eelbow macaroni
+    454 grams uncooked Elbow macaroni
     4 cups chicken or vegetable broth
     2 tbsp butter
     1 tsp hot pepper sauce
