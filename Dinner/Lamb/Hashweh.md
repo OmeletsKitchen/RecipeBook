@@ -2,8 +2,8 @@ From: https://thelemonbowl.com/lebanese-hushwee-ground-beef-pine-nuts/#recipe
    
 ## Hushwee Ingredients
 
-    1 tablespoon clarified butter also known as ghee
-    1 medium onion minced – use frozen diced onions to save time
+    1 tablespoon ghee or butter
+    1 medium onion, minced
     570 g ground sirloin lamb or bison work well too
     2 tablespoons All Purpose Lebanese Spice Blend
     34 g pine nuts, toasted
