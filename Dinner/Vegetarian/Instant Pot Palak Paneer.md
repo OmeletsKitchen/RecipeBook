@@ -17,7 +17,7 @@ Ingredients:
     1/2 cup water
     1 1/2 cups paneer, cut into d6 sized cubes or as desired
 
-1. Preheat the Instant Pot by selecting saute and adjust to More for high heat. When the inner lining is hot, add the oil and heat until shiummering. Add the garlic, ginger, and chile, and saute for 1 min or until fragrant.
+1. Preheat the Instant Pot by selecting saute and adjust to More for high heat. When the inner lining is hot, add the oil and heat until shimmering. Add the garlic, ginger, and chile, and saute for 1 min or until fragrant.
 2. Add all remaining ingredients except paneer.
 3. Lock the lid into place and select Manual, adjusting the pressure to High. Cook for 4 mins.
 4. When the cycle is complete, quick release the pressure, unlock, and remove the lid.
