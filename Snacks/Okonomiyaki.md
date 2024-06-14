@@ -23,7 +23,7 @@ Topping:
 
 **Method**
 
-1. Place rimmed baking sheet in oven; heat to 450F
+1. Place rimmed baking sheet in oven; heat to 450F.
 2. In a large bowl, whisk miso into water until dissolved. Whisk in the 3 eggs, then the flour until smooth. Fold in cabbage and scallions.
 3. Remove baking sheet and carefully drizzle oil onto the sheet, tipping it slowly to evenly coat the surface. Add batter and use a spatula to spread it in an even layer. Bake until top is set and edges brown, about 15 mins.
 4. Meanwhile, in a small bowl, stir together the ketchup, oyster sauce, sugar, and wocestershire.
