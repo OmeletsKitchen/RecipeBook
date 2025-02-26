@@ -1,6 +1,6 @@
 From: https://www.inspiredtaste.net/40400/lentil-soup/
 
-**Ingredients**
+## Ingredients
 
     2 tablespoons olive oil
     2 cups finely chopped onion (1 medium onion)
@@ -17,7 +17,8 @@ From: https://www.inspiredtaste.net/40400/lentil-soup/
     1/4 cup chopped fresh herbs like parsley or dill, optional
     Fine sea salt, to taste
     
-    ## Method
+    
+## Method
     
 * Heat the oil in a large pot (like a Dutch oven) over medium heat. Add the onions, carrot, and 1/4 teaspoon of salt and cook, stirring occasionally until they are softened and starting to smell sweet, about 5 to 7 minutes. Stir in the garlic, cumin, coriander, black pepper, and turmeric and cook for 30 seconds.
 
