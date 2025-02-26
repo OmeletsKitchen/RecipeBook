@@ -1,6 +1,6 @@
 From: https://www.inspiredtaste.net/40400/lentil-soup/
 
-## Ingredients
+**Ingredients**
 
     2 tablespoons olive oil
     2 cups finely chopped onion (1 medium onion)
