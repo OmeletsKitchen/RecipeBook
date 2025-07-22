@@ -24,3 +24,5 @@ Taro Coconut Sago
 2. Bring water to a boil, then reduce down to a simmer. Let is simmer for about 20 min, under taro is soft. To check to see if the taro is cooked or not, use a fork and chopstick and stick it into a taro cube. It should go in easily.
 3. Add coconut milk and cook for another 5 minutes. Taste and add more rock sugar is you desire.
 4. Drain tapioca pearls and add to the taro coconut soup. Stir and serve hot or cold.
+
+Note: If you like thicker and creamier consistency, you can simmer taro coconut sago for a longer time.
