@@ -5,7 +5,7 @@ Ingredients
     2 lb Taro, cut into large cubes (Be sure to get large taro, not the baby ones!)
     ½ cup tapioca pearls
     5 cups water
-    1 (13.5oz) can coconut milk
+    1 (13.5oz) can coconut milk, shaken very well
     100g rock sugar or 75g granulated sugar, plus more if you prefer sweeter sago
 
 Method:
