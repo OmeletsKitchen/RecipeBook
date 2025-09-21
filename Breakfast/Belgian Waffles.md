@@ -2,12 +2,12 @@ From: https://tastesbetterfromscratch.com/belgian-waffles/
 
 Ingredients:
 
-    414.03 ml all-purpose flour
+    210 g all-purpose flour
     12 g baking powder
     3 g salt
     2 large eggs , separated
-    414.03 ml milk or dairy-free milk
-    118.29 ml oil vegetable, canola, or melted coconut oil
+    392 g milk or dairy-free milk
+    100 g oil vegetable, canola, or melted coconut oil
 
 Method:
 
