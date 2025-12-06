@@ -20,6 +20,6 @@ Ingredients:
 
 1. Pour water into the IP insert. Set in the trivet rack.
 2. Squeeze the artichoke heart over the sink to remove excess moisture, then chop coarsely and add to a 7-in wide, high walled heatproof baking dish. Do the same with the spinach.
-3. Add the cream cheese, parm, shallot, bacon (if using), flour, garlic powder, and salt. Use a form to smash ingredients together until creamy. The texture should remain somewhat chunky.
+3. Add the cream cheese, parm, shallot, bacon (if using), flour, garlic powder, and salt. Use a fork to smash ingredients together until creamy. The texture should remain somewhat chunky.
 4. Stir in cream until well blended. Cover the dish gently with aluminum foil, then place on top of trivet rack. Lock the lid onto the pot.
 5. Set cooker to Manual HIGH pressure and cook for 20 minutes. When the pot has completed the cycle, do a quick release. Carefully remove the inner dish and allow to cool for a few minutes.
