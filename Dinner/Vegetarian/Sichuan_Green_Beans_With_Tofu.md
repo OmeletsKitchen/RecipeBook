@@ -1,3 +1,5 @@
+From: One Pan & Done
+
 # Charred Sichuan Green Beans & Tofu
 
 I love ordering the garlicky charred green beans at our local Chinese restaurant, so it was only a matter of time before I got the itch to re-create the dish at home. As it turns out, a few fun spices, a sheet pan, and the broiler are all it takes! Firm tofu, which soaks up the spicy, salty sauce, is a natural pairing.
