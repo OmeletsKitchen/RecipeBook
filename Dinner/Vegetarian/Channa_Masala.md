@@ -27,7 +27,7 @@ Method:
 1. Combine garlic, ginger, chiles, 1 tablespoon lemon juice, and 1/2 teaspoon kosher salt in a mortar and pestle or in the small work bowl of a food processor and pound or process until a fine paste is produced. Set aside.
 2. Heat oil or ghee in a large saucepan or Dutch oven over medium-high heat until shimmering. All at once, add mustard seeds and cumin. They will sputter and spit for a few seconds.
 3. As soon as they are aromatic (about 15 seconds), add onion all at once, along with baking soda. Cook, stirring frequently, until onions start to leave a brown coating on bottom of pan, 3 to 4 minutes. Add 1 tablespoon water, scrape up browned bits from pan, and continue cooking. Repeat this process until onions are a deep brown, about 10 minutes total.
-4. mmediately add garlic/ginger/chile paste all at once and stir to combine. Add coriander, black pepper, turmeric, and 1 teaspoon garam masala. Stir until fragrant, about 30 seconds. Add tomatoes and crush them using a whisk or potato masher.
+4. Immediately add garlic/ginger/chile paste all at once and stir to combine. Add coriander, black pepper, turmeric, and 1 teaspoon garam masala. Stir until fragrant, about 30 seconds. Add tomatoes and crush them using a whisk or potato masher.
 5. Add drained, rinsed chickpeas and cilantro, reserving a little cilantro for garnish. Add 1/2 cup water.
 6. Bring to a simmer, cover with lid slightly cracked, and reduce heat to maintain a gentle bubbling. Cook, stirring occasionally, until liquid has reduced into a thick stew and spices have melded, about 30 minutes.
 7. Stir in remaining garam masala and lemon juice. Season to taste with salt. Serve with rice and/or naan, sprinkling additional cilantro on top. 
