@@ -1,4 +1,4 @@
-From: One Pan & Done
+From: One Pan & Done by Molly Gilbert
 
 # Charred Sichuan Green Beans & Tofu
 
