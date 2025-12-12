@@ -1,6 +1,6 @@
-## Roast Chicken Rub
+# Roast Chicken Rub
 
-# Ingredients
+## Ingredients
 
     1 tbsp each of kosher (coarse) salt, fresh ground black pepper, ground cumin, and ground coriander
     3 large cloves of fresh garlic, minced or pressed
