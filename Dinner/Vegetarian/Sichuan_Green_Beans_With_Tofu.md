@@ -16,7 +16,6 @@ You can find Sichuan peppercorns and sambal oelek (a spicy, Southeast Asian chil
 - 1 tablespoon sambal oelek
 - 2 cloves garlic, minced
 - 1 tablespoon minced fresh ginger
-- 2 tablespoons capers, drained
 - 1 tablespoon sugar
 - 3 tablespoons less-sodium soy sauce
 - 2 teaspoons toasted sesame oil
