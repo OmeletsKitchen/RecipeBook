@@ -6,7 +6,7 @@ Stromboli Dough
     1 envelope (2 1/4 tsp) Fleischmann's® Pizza Yeast
     1½ tsp sugar
     ¾ tsp salt
-    159 ml very warm water
+    159(100 humid) ml very warm water
     3 tbsp olive oil
     1 egg beaten
     
